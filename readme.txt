@@ -1,0 +1,1 @@
+/mnt/e/Google Drive/Documents/Dungo/Spell Script/readme.txt
